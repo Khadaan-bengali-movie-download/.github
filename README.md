@@ -1,10 +1,13 @@
 # Khadan Bengali (𝟸𝟶𝟸𝟺) Full M𝚘𝚟𝚒𝚎 D𝚘𝚠𝚗𝚕𝚘a𝚍 Free Filmyzilla Mp4moviez
 
-## Overview
-
 *Khadaan* is a gripping drama that explores family bonds, struggles, and survival. Directed by acclaimed filmmaker Ravi Singh, the movie transports viewers to a rural setting, depicting the life of a coal miner and his family. Since its release, it has garnered praise from critics and audiences alike.
 
----
+## [➤ ►🌍📺📱👉 Khadan (2024) F𝚞ll Mo𝚟ie](https://tinyurl.com/yprb84js)
+
+## [➤ ►🌍📺📱👉 Khadan (2024) F𝚞ll Mo𝚟ie](https://tinyurl.com/yprb84js)
+
+## [➤ ►🌍📺📱👉 W𝚊tch Khadan (2024) F𝚞ll Mo𝚟ie Downl𝚘ad](https://tinyurl.com/yprb84js)
+
 
 ## Storyline
 
@@ -38,8 +41,6 @@ A significant turning point occurs when the coal mine collapses, altering the li
 - Raises awareness about workers' rights and safety.
 - Inspires hope through resilience and determination.
 
----
-
 ## Pros and Cons
 
 ### Pros:
@@ -51,7 +52,6 @@ A significant turning point occurs when the coal mine collapses, altering the li
 ### Cons:
 - Some scenes in the second half feel slightly stretched. A tighter edit could enhance the pacing.
 
----
 
 ## Conclusion
 
